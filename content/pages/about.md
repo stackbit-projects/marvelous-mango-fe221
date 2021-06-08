@@ -35,7 +35,7 @@ The only thing I love more than writing is the process of meeting a new client a
 
 ## Credentials
 
-I have a BA in English Literature and an MBA in Marketing from the University of California. I am also a certified campaign manager in all the major PPC platforms, and a staff writer in several industry publications.
+I have a developer in English Literature and an MBA in Marketing from the University of California. I am also a certified campaign manager in all the major PPC platforms, and a staff writer in several industry publications.
 
 My 20 years of experience have taught me to effectively identify the audience for which I write, and explain complex concepts in a friendly and non-intimidating way.
 
